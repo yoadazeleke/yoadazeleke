@@ -19,9 +19,9 @@ I studied **psychology** at **Tennessee State University**, where I focused on *
 ---
 
 ## 💖 Life Outside of Tech  
-I come from an **Ethiopian family**, and that’s where I learned to appreciate the **art of cooking** and the beauty of culture and tradition. 🍲 When I’m not working, you’ll find me spending time in **nature**, spending time with my cat **Nala**, working on **arts and crafts** like **sewing** and **jewelry making**, or experimenting with new recipes in the kitchen ✨  
+I come from an Ethiopian family, and that’s where I learned to appreciate the **art of cooking** and the beauty of culture and tradition. 🍲 When I’m not working, you’ll find me spending time in **nature**, spending time with my cat **Nala**, working on **arts and crafts** like **sewing** and **jewelry making**, or experimenting with new recipes in the kitchen ✨  
 
-I also share my **artwork** and other inspiration on **Pinterest** ([lunarmoonlightchild](https://www.pinterest.com/lunarmoonlightchild/)). Music, especially **Mariah Carey**, is my go-to for relaxation and inspiration ✨  
+I also share my **artwork** which focuses on **dreamy and healing art** on **Pinterest** ([lunarmoonlightchild](https://www.pinterest.com/lunarmoonlightchild/))✨  
 
 ---
 
