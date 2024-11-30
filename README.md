@@ -1,35 +1,29 @@
 # 👋 Hi, I’m @yoadazeleke  
 
 - 👀 I’m passionate about **psychology**, **mental health**, **data analysis**, and **graphic design**.  
-- 🌱 Currently learning **Python**, **Machine Learning**, and **R** to explore the world of tech even further.  
-- 💞️ I’d love to collaborate on projects that focus on **healthcare**, **mental productivity**, and making a positive impact.  
-- 📫 You can reach me at [yoadazeleke@gmail.com](mailto:yoadazeleke@gmail.com).  
-- 🔗 Let’s connect on [LinkedIn](https://www.linkedin.com/in/yoadabzeleke/).  
-- 🖼️ Check out my dreamy, abstract digital artwork on [Pinterest](https://www.pinterest.com/lunarmoonlightchild/)!  
+- 🌱 Currently diving into **Python**, **Machine Learning**, and **R**.  
+- 💞️ I’m all about collaborating on projects that focus on **healthcare** and **mental productivity**.  
+- 📫 Best way to reach me: [yoadazeleke@gmail.com](mailto:yoadazeleke@gmail.com).  
+- 🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/yoadabzeleke/).  
+- 🖼️ Check out my work on [Pinterest](https://www.pinterest.com/lunarmoonlightchild/).  
 - 😄 **Pronouns**: She/her  
-- ⚡ **Fun fact**: I’m an INFJ, a middle child, and a proud member of the **Lambily** (Mariah Carey fans unite!).  
+- ⚡ **Fun fact**: I’m an INFJ, a daydreamer and a Mariah Carey superfan! 🎶  
 
 ---
 
-## 🌸 A Little About Me  
-Hi there! I’m Yoada, and my journey into tech started long before college—it was practically part of my DNA growing up. I attended a **predominantly arts and technology-focused school from kindergarten through 12th grade**, where I got to explore everything from coding basics to creative design. Those years really shaped my love for blending **art** and **tech** in meaningful ways.  
+## 🌸 About Me  
+Hey there, I’m Yoada 👋 I’ve always had a love for blending **art**, **psychology**, and **tech**. I grew up attending a **tech and arts-focused school**, and that sparked my passion for combining creativity with technology. 💡  
 
-I went on to study **psychology** at **Tennessee State University**, where I graduated **summa cum laude**. My favorite part? Diving deep into **research methodologies**, **statistics** (both descriptive and inferential), and **user research**, which helped me understand how people think and interact with the world. During college, I even tutored other students in statistics, which solidified my love for making complex concepts approachable.  
-
-After college, I decided to combine my passions for **psychology**, **design**, and **technology**. I’ve been freelancing as a **Web Designer** in **Nashville**, focusing on creating intuitive user experiences. Platforms like **Behance** and **Dribbble** have been my creative playgrounds, where I share designs and connect with like-minded creators.  
+I studied **psychology** at **Tennessee State University**, where I focused on **research methodologies**, **stats**, and **user behavior**. After graduation, I started freelancing as a **Web Designer** in **Nashville**, and I've been loving the process of creating designs that are both beautiful and functional. 💻✨  
 
 ---
 
-## 💖 What I Love Outside of Work  
-When I’m not designing or deep-diving into tech, I’m all about **music**—especially listening to my queen, **Mariah Carey**. Her voice is pure magic and has been a constant source of inspiration for me.  
+## 💖 Life Outside of Tech  
+I come from an **Ethiopian family**, and that’s where I learned to appreciate the **art of cooking** and the beauty of culture and tradition. 🍲 When I’m not working, you’ll find me spending time in **nature**, working on **arts and crafts** like **sewing** and **jewelry making**, or experimenting with new recipes in the kitchen. 👗🍴  
 
-I also love spending time in **nature**, whether it’s hiking, going for walks, or just taking a moment to breathe outside. When I’m feeling creative, I enjoy **arts and crafts** like **sewing**, **jewelry making**, and experimenting with new DIY projects.  
-
-Cooking and **reading** are my go-to activities for relaxation, and when I’m feeling artsy, you’ll find me on **Pinterest** sharing my dreamy, abstract, healing digital art ([lunarmoonlightchild](https://www.pinterest.com/lunarmoonlightchild/)).  
+I also share my **artwork** and other inspiration on **Pinterest** ([lunarmoonlightchild](https://www.pinterest.com/lunarmoonlightchild/)). Music, especially Mariah Carey, is my go-to for relaxation and inspiration. 🎤  
 
 ---
 
-## 🌟 Where I’m Headed  
-Born and raised in the **DMV area**, I moved to **Nashville in 2018** to pursue my education and dreams. My journey has been all about combining my love for **psychology**, **data**, **design**, and **engineering** into a career that’s both creative and impactful.  
-
-I’m passionate about creating tech solutions that make people’s lives better—whether it’s through intuitive design, data-driven insights, or exploring new technologies. My background has taught me that **understanding people** and **building meaningful tools** go hand in hand, and I can’t wait to see where this path takes me next.  
+## 🌟 My Journey  
+Originally from the DMV area, I moved to **Nashville in 2018** to pursue my education and have since fallen in love with this city. My goal is to combine my interests in **psychology**, **data**, **design**, and **engineering** to create tech solutions that make a difference. 🌱  
