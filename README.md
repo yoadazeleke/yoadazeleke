@@ -21,9 +21,8 @@ I studied **psychology** at **Tennessee State University**, where I focused on *
 ## 💖 Life Outside of Tech  
 I come from an Ethiopian family, and that’s where I learned to appreciate the **art of cooking** and the beauty of culture and tradition. 🍲 When I’m not working, you’ll find me spending time in **nature**, spending time with my cat **Nala**, working on **arts and crafts** like **sewing** and **jewelry making**, or experimenting with new recipes in the kitchen ✨  
 
-I also share my **artwork** which focuses on **dreamy and healing art** on **Pinterest** ([lunarmoonlightchild](https://www.pinterest.com/lunarmoonlightchild/))✨  
+Fun Fact: In 2023, I spent a whopping **16,663 minutes** listening to **Mariah Carey** on Spotify, ranking in the **top 0.005% of listeners** that year ✨
 
-Fun Fact: In 2023, I spent a whopping 16,663 minutes listening to Mariah Carey on Spotify, ranking in the top 0.005% of listeners that year! 🎤🎶
 ---
 
 ## 🌟 My Journey  
