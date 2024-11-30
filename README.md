@@ -23,6 +23,7 @@ I come from an Ethiopian family, and that’s where I learned to appreciate the 
 
 I also share my **artwork** which focuses on **dreamy and healing art** on **Pinterest** ([lunarmoonlightchild](https://www.pinterest.com/lunarmoonlightchild/))✨  
 
+Fun Fact: In 2023, I spent a whopping 16,663 minutes listening to Mariah Carey on Spotify, ranking in the top 0.005% of listeners that year! 🎤🎶
 ---
 
 ## 🌟 My Journey  
