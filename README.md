@@ -1,7 +1,7 @@
 # 👋 Hi, I’m @yoadazeleke  
 
 - 👀 I’m passionate about **psychology**, **mental health**, **data analysis**, and **graphic design**.  
-- 🌱 Currently diving into **Python**, **Machine Learning**, and **R**.  
+- 🌱 Currently diving into **SQL**, **Machine Learning**, and **R**.  
 - 💞️ I’m all about collaborating on projects that focus on **healthcare** and **mental productivity**.  
 - 📫 Best way to reach me: [yoadazeleke@gmail.com](mailto:yoadazeleke@gmail.com).  
 - 🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/yoadabzeleke/).  
