@@ -1,13 +1,13 @@
 # 👋 Hi, I’m @yoadazeleke  
 
-- 👀 I’m passionate about **psychology**, **mental health**, **data analysis**, and **graphic design**.  
-- 🌱 Currently diving into **SQL**, **Machine Learning**, and **R**.  
-- 💞️ I’m all about collaborating on projects that focus on **healthcare** and **mental productivity**.  
+- 👀 Passionate about **psychology, mental health, data analysis, and graphic design**.  
+- 🌱 Currently diving into **SQL, Machine Learning, and R**.  
+- 💞️ Excited to collaborate on projects that **leverage data to create a better world**, especially in **healthcare and mental well-being**.  
 - 📫 Best way to reach me: [yoadazeleke@gmail.com](mailto:yoadazeleke@gmail.com).  
-- 🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/yoadabzeleke/).  
-- 🖼️ Check out my work on [Pinterest](https://www.pinterest.com/lunarmoonlightchild/) and [Dribbble](https://dribbble.com/yoadazeleke).  
-- 😄 **Pronouns**: She/her  
-- ⚡ **Fun fact**: I’m an INFJ, a daydreamer, and a Mariah Carey superfan! ✨  
+- 🔗 Let’s connect on [LinkedIn](https://www.linkedin.com/in/yoadabzeleke/).  
+- 🖼️ Explore my creative side on [Pinterest](https://www.pinterest.com/lunarmoonlightchild/) and [Dribbble](https://dribbble.com/yoadazeleke).  
+- 😄 **Pronouns**: She/Her  
+- ⚡ **Fun fact**: I’m an **INFJ, a deep thinker, and a Mariah Carey superfan!** ✨  
 
 ---
 
